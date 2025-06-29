@@ -1,4 +1,5 @@
 Jesus (born c. 6–4 bce, Bethlehem—died c. 30 ce, Jerusalem) was a religious leader revered in Christianity, one of the world’s major religions. He is regarded by most Christians as the Incarnation of God. The history of Christian reflection on the teachings and nature of Jesus is examined in the article Christology.
+
 Although born in Bethlehem, according to Matthew and Luke, Jesus was a Galilean from Nazareth, a village near Sepphoris, one of the two major cities of Galilee (Tiberias was the other). He was born to Joseph and Mary sometime between 6 bce and shortly before the death of Herod the Great (Matthew 2; Luke 1:5) in 4 bce. According to Matthew and Luke, however, Joseph was only legally his father. They report that Mary was a virgin when Jesus was conceived and that she “was found to be with child from the Holy Spirit” (Matthew 1:18; cf. Luke 1:35). Joseph is said to have been a carpenter (Matthew 13:55)—that is, a craftsman who worked with his hands—and, according to Mark 6:3, Jesus also became a carpenter.
 Why should we believe in Him?
 
